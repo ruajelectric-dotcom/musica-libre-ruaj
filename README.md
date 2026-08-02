@@ -16,6 +16,8 @@ Todas las canciones están publicadas en Suno, donde puedes escucharlas completa
 
 ### 👉 [suno.com/@ruaj_electric](https://suno.com/@ruaj_electric)
 
+![Portada Suno - RUAJ ELECTRIC](portada%202%20.jpg.png)
+
 Cuando encuentres la que te guste, vuelve aquí y descárgala.
 
 ---
